@@ -8,4 +8,4 @@ I love anime & coding alot.
 
 ## 📫 Contact
 
-To get in touch, you can drop a message at my discord as i don't use other social platforms~~
+To get in touch, you can drop a message at my discord~~
